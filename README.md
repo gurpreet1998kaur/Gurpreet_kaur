@@ -1,1 +1,0 @@
-# Gurpreet_kaur
